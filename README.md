@@ -1,0 +1,2 @@
+# thu
+thu lap trinh
